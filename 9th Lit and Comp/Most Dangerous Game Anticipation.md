@@ -19,7 +19,7 @@ In this example suspense is created by leaving the reader hanging.
 The context clues in this statement are the words Lost, speed and skill. 
 
 
-![clipboard.png](s-xSysavN-clipboard.png)
+![clipboard.png](https://images-na.ssl-images-amazon.com/images/I/51g-3PzpOvL._SY291_BO1,204,203,200_QL40_FMwebp_.jpg)
 
 ## How can an image show suspense?
 
